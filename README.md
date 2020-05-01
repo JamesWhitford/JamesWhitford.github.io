@@ -1,1 +1,0 @@
-# JamesWhitford.github.io
